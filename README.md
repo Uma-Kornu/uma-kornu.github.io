@@ -1,1 +1,0 @@
-# uma-kornu.github.io
